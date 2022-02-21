@@ -46,5 +46,9 @@ Here are what I argue are the only principles that everyone should follow, regar
 9. The individuals in a group that is splitting must be allowed to choose the one they move too
 10. The groups should split as evenly as possible. The groups that result may be in need and can find others
 11. When given a choice between spending time someone from the group or with an Other person, devote time to the group.
+12. Find your Loved Ones and Friends based on like-mindedness. No other trait - religion, ethnicity, age is more meaningful
+13. After like-mindedness, location is the next most important. It is far more difficult to maintain meaningful connections with people who do not live near you
+
+
 
 
