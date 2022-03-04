@@ -4,11 +4,11 @@
 
 Welcome back to the beginning. You feel lost now but have arrived at a place that can move you from the Lost to the Found; from despair to peace.
 
-To feel lost is natural. It is the mind's reminder that, as social creatures, we need others to feel whole and have purpose.
+To feel lost is natural. It is the mind's reminder that, as social creatures, we need others to fend off danger, to feel whole and to have purpose.
 
 ## A Message for the Exploited
 
-And Welcome to the manipulated. You have found purpose or conviction following what others have convinced you to believe. You may now realize you have been tricked into giving up some of your time and energy to someone who does not respect or even know you. You might still be exploited and simply stumbled on this tiny place. Either way, welcome.
+And Welcome to the manipulated. You have found purpose or conviction following what others have convinced you to believe what they say. You may now realize you have been tricked into giving up some of your time and energy to someone who does not respect or even know you. You might still be exploited and simply stumbled on this tiny place. Either way, welcome.
 
 ## A Message for the Lonely
 
@@ -43,7 +43,7 @@ Here are what I argue are the only principles that everyone should follow, regar
 6. If you have less than 30, you are in need of other people
 7. If you have more than 60, you are in excess
 8. Groups in excess of 60 should split in two. 
-9. The individuals in a group that is splitting must be allowed to choose the one they move too
+9. The individuals in a group that is splitting must be allowed to choose the one they move to
 10. The groups should split as evenly as possible. The groups that result may be in need and can find others
 11. When given a choice between spending time someone from the group or with an Other person, devote time to the group.
 12. Find your Loved Ones and Friends based on like-mindedness. No other trait - religion, ethnicity, age is more meaningful
