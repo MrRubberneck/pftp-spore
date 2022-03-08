@@ -28,7 +28,7 @@ We're all human. We are no, however, one big family as some may suggest. Our min
 
 Here are what I argue are the only principles that everyone should follow, regardless of what they believe, what they look like, where you are, and where you are in your life right now. You can immediately begin applying these principles to fix most challenges you are facing:
 
-1. Acknowledge that you are human, a social creature, and need relationships to thrive
+1. Acknowledge that as humans we are social beings that need relationships to survive
 2. There are four groups of people
  - Self - a group consisting of just you
  - Loved Ones - your closest 10-12 people. Your Loved Ones are not necessarily blood relatives
