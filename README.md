@@ -26,7 +26,7 @@ We're all human. We are no, however, one big family as some may suggest. Our min
 
 # Principles
 
-Here are what I argue are the only principles that everyone should follow, regardless of what they believe, what they look like, where you are, and where you are in your life right now. You can immediately begin applying these principles to fix most challenges you are facing:
+Here are what I argue are principles that everyone could follow, regardless of what they believe, what they look like, where you are, and where you are in your life right now. You can immediately begin applying these principles to fix most challenges you are facing:
 
 1. Acknowledge that as humans we are social beings that need relationships to survive
 2. There are four groups of people
