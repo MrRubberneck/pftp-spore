@@ -22,7 +22,7 @@ Welcome Peace Seeker. Peace can be upon you in a short while. Your unrest comes 
 
 Welcome to all.
 
-We're all human. We are no, however, one big family as some may suggest. Our minds are wired for small groups, but also, not too small. Too many people, and the group runs the risk of being exploited by the "wolf in sheeps clothing". Too few, and the group or individual may be exploited like a tool.
+We're all human. We are not, however, one big family as some may suggest. Our minds are wired for small groups, but also, not too small. Too many people, and the group runs the risk of being exploited by the "wolf in sheeps clothing". Too few, and the group or individual may be exploited like a tool.
 
 # Principles
 
