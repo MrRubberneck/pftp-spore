@@ -49,6 +49,8 @@ Here are what I argue are principles that everyone could follow, regardless of w
 12. Find your Loved Ones and Friends based on like-mindedness. No other trait - religion, ethnicity, age is more meaningful
 13. After like-mindedness, location is the next most important. It is far more difficult to maintain meaningful connections with people who do not live near you
 
+# Stories
 
+https://github.com/MrRubberneck/pftp-spore/wiki
 
 
