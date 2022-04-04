@@ -2,13 +2,13 @@
 
 ## A Message for the Lost
 
-Welcome back to the beginning. You feel lost now but have arrived at a place that can move you from the Lost to the Found; from despair to peace.
+Welcome back to the beginning. You feel lost now but have arrived at a place to help you move you from lost to found; from despair to peace.
 
 To feel lost is natural. It is the mind's reminder that, as social creatures, we need others to fend off danger, to feel whole and to have purpose.
 
 ## A Message for the Exploited
 
-And Welcome to the manipulated. You have found purpose or conviction following what others have convinced you to believe what they say. You may now realize you have been tricked into giving up some of your time and energy to someone who does not respect or even know you. You might still be exploited and simply stumbled on this tiny place. Either way, welcome.
+And Welcome to the manipulated. You have found purpose or conviction following what others have convinced you to believe. You may now realize you have been tricked into giving up some of your time and energy to someone who does not respect or even know you. You might still be exploited and simply stumbled on this tiny place. Either way, welcome.
 
 ## A Message for the Lonely
 
@@ -22,11 +22,11 @@ Welcome Peace Seeker. Peace can be upon you in a short while. Your unrest comes 
 
 Welcome to all.
 
-We're all human. We are not, however, one big family as some may suggest. Our minds are wired for small groups, but also, not too small. Too many people, and the group runs the risk of being exploited by the "wolf in sheeps clothing". Too few, and the group or individual may be exploited like a tool.
+We're all human. We are not, however, one big family as some may suggest. Our minds are wired for small groups, but also, not too small. Too many people and the group runs the risk of being exploited by the "wolf in sheeps clothing". Too few, and the group or individual may be exploited like a tool.
 
 # Principles
 
-Here are what I argue are principles that everyone could follow, regardless of what they believe, what they look like, where you are, and where you are in your life right now. You can immediately begin applying these principles to fix most challenges you are facing:
+Here are what I argue are principles that everyone could follow, regardless of what you believe, what you look like, where you are, and where you are in your life right now. You can immediately apply these principles to fix most challenges you are facing:
 
 1. Acknowledge that as humans we are social beings that need relationships to survive
 2. There are four groups of people
